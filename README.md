@@ -1,3 +1,4 @@
 Ellen Pompeo
-Danai Gurira
+Demi Lovato
 Viola Davis
+Claudia Raia
