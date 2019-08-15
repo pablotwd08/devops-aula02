@@ -1,1 +1,3 @@
-# devops-aula02
+Ellen Pompeo
+Danai Gurira
+Viola Davis
